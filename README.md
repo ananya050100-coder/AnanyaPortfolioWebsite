@@ -1,2 +1,2 @@
 # AnanyaPortfolioWebsite
-Hey, this is Ananya and this is my website. Welcome to for territory 
+Hey, this is Ananya and this is my website. Welcome to my territory 
